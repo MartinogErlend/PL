@@ -1,2 +1,0 @@
-# PL
-Premier league
